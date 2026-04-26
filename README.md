@@ -1,4 +1,4 @@
-# Matter-is-Trapped-Light.model
+# Matter-is-Trapped-Crystallized-Light.model
 # Search:
 - https://www.youtube.com/results?search_query=matter+is+frozen+light
 - https://www.youtube.com/results?search_query=matter+is+trapped+light
